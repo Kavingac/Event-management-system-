@@ -1,1 +1,1 @@
-# Event-management-system-
+# Event-management-system- Team leader -https://trailblazer.me/id/kavip45 Team member 1-  https://trailblazer.me/id/mmlogeshwari Team member 2-https://trailblazer.me/id/murali63 Team member 3-https://trailblazer.me/id/nirmala6
